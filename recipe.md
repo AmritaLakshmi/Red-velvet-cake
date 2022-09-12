@@ -1,0 +1,1 @@
+Then, mix up the wet ingredients starting with some unsalted butter and granulated sugar. I suggest creaming the butter and sugar together for about 4-5 minutes. Why? Creaming the butter and sugar together until light and fluffy incorporates more air into your cake batter creating a softer, lighter cake.
